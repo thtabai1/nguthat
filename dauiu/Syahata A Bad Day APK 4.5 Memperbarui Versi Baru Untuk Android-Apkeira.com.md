@@ -1,0 +1,4 @@
+﻿#  Syahata A Bad Day APK 4.5 Memperbarui Versi Baru Untuk Android- Apkeira.com
+##  Unduh Sekarang: [Syahata A Bad Day APK](https://tinyurl.com/ybdw26pn)
+
+**Syahata A Bad Day APK** adalah game Mobile seru untuk perangkat Android yang menggabungkan aksi 2D side-scrolling dengan elemen horor dan teka-teki. Anda berperan sebagai Syahata, seorang siswa yang harus bertahan hidup dari serangan zombie di sekolah yang penuh misteri. Dengan grafis pixel art klasik dan gameplay menantang, game ini menawarkan pengalaman yang mendebarkan. **Latest Version** menghadirkan peningkatan performa dan fitur baru. Ukuran file yang ringan memungkinkan game ini berjalan lancar di berbagai perangkat. Unduh **Syahata A Bad Day APK** sekarang secara gratis dan nikmati petualangan seru di dunia yang penuh tantangan!
